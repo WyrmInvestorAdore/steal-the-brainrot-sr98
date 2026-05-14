@@ -1,4 +1,4 @@
-#  
+#  steal the brainrot base premium Script offers the most advanced steal the brainrot base Script, with teleport and esp. Perfect for dominating any
 
 
 
